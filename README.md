@@ -1,2 +1,2 @@
-# Arzu_Yusifzada-
+# Arzu_Yusifzada
 My personal repository
